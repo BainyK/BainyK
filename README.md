@@ -1,4 +1,4 @@
-# Hi there, I'm Muhammad Bainy Kurniawan 👋
+# [cite_start]Hi there, I'm Muhammad Bainy Kurniawan 👋 [cite: 1]
 
 **Senior IT R&D Manager | 21+ Years of Tech Evolution (Clipper to GenAI) | Retail Tech Expert**
 
